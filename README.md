@@ -80,7 +80,7 @@ Windows / macOS / iOS / Android / Linux
 ## 🚀 立即体验（点击注册）
 
 👉 **[点击注册获取加速服务](https://inv06.lmaff01.cc/register?aff=A1zuvjVF)**
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
