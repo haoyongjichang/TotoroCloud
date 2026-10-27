@@ -11,6 +11,9 @@
 
 龙猫云（TotoroCloud）是一款全球网络加速服务，基于IPLC专线和多地区节点部署，为用户提供更稳定、队列延迟的跨境访问体验。
 
+👉 **[点击注册获取龙猫云加速服务](https://a.wwaann.com/?s=totorocloud)**
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+
 适用于：
 
 -海外网站访问加速
@@ -79,7 +82,7 @@ Windows / macOS / iOS / Android / Linux
 
 ## 🚀 立即体验（点击注册）
 
-👉 **[点击注册获取加速服务](https://inv06.lmaff01.cc/register?aff=A1zuvjVF)**
+👉 **[点击注册获取加速服务](https://a.wwaann.com/?s=totorocloud)**
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
